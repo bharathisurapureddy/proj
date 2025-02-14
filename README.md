@@ -1,0 +1,1 @@
+In today's digital age, the real estate industry is witnessing a significant shift towards online platforms for property transactions. Traditional methods of buying, selling, and renting properties such as lands, vehicles, Gold,etc.., are being complemented, and in some cases, replaced by digital solutions.
